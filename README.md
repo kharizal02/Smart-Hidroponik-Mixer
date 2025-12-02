@@ -6,5 +6,7 @@ Deskripsi: Smart Mixer Hidroponik
 
 
 
-Uploading demo.mp4…
+https://github.com/user-attachments/assets/3505c491-55e5-4130-a562-7d9ef3633866
+
+
 
